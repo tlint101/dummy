@@ -1,3 +1,3 @@
 What up?
 
-Hello, fin - from ChaoHsu 0806
+Hello, finally - from ChaoHsu 0806
